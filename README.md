@@ -1,2 +1,2 @@
-# amit-l-ve-shreya
+# amit-love-shreya
 For You 💗
